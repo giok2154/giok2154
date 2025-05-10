@@ -6,7 +6,6 @@
 > También tengo conocimientos en **diseño gráfico**, lo que me permite unir funcionalidad con estética en cada proyecto.  
 > Me gusta aprender constantemente y experimentar con nuevas tecnologías para mejorar mis habilidades y aportar soluciones creativas.
 
-Soy un apasionado de la tecnologia y el diseño visual.
 <h2 align="center">🚀 En formacion constante en tecnologias como:</h2>
 
 <p align="center">
